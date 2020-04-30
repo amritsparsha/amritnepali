@@ -1,0 +1,2 @@
+# amritnepali
+Amrit Nepali
